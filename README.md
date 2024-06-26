@@ -8,8 +8,6 @@
 
 gislenichoremendez@gmail.com
 
-!{}()
+!{}(https://tenor.com/SfKg.gif)
 
-https://tenor.com/SfKg.gif
 
-!{}()
